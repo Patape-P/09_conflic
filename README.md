@@ -1,5 +1,5 @@
 # 09_conflic
 //owner
-HELP I NEED MONEY
+HELP I NEED MONEY help me !!!!
 //collab
-Bro go crazy
+้hahaha Bro go crazy
